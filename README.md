@@ -1,2 +1,2 @@
 # davifr.github.io
-Página profissional do Prof. Davi Franco Rêgo
+Redirecionamento para a página profissional do Prof. Davi Franco Rêgo
